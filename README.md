@@ -1,4 +1,4 @@
-BEE 4 is a specialist print manufacturer with over 25 years of print manufacturing experience. We specilaiise in digital printing and offer the following services - 
+[BEE 4]([your site's URL](https://bee4ltd.co.uk/)). is a specialist print manufacturer with over 25 years of print manufacturing experience. We specialise in digital printing and offer the following services - 
 
 Vinyl Lable / Sticker Printing
 Industrial Asser Labels 
